@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Akshu-18
 - 👀 I’m interested in Decentralized World
-- 🌱 I’m currently learning Blockchain Development
+- 🌱  Blockchain Developer|| WEB3 Enthusiast
 =- 📫 How to reach me insta id-im__.akshu__
 -Blockchain enthugiast,Curious about Web3 World
 
